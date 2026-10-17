@@ -30,3 +30,11 @@ Terima kasih kepada HMDTIF FILKOM UB yang sudah menyiapkan penugasan ini. Semoga
 ---
 
 > *"Every expert was once a beginner."*
+
+---
+
+## 🎯 Hobi
+
+- Ngoding
+- Main game
+- Dengerin musik
