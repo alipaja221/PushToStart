@@ -35,6 +35,6 @@ Terima kasih kepada HMDTIF FILKOM UB yang sudah menyiapkan penugasan ini. Semoga
 
 ## 🎯 Hobi
 
-- Ngoding
-- Main game
+- Main Gitar
+- Olahraga (Badminton , Volly)
 - Dengerin musik
